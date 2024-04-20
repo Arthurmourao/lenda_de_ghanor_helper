@@ -1,0 +1,1 @@
+# lenda_de_ghanor_helper
